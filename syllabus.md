@@ -10,6 +10,8 @@ Rena D. Grossman
 
 - *Kindred,* **Octavia Butler**
 
+-*Coraline,* **Neil Gaiman**
+
 - *HOW LONG 'TIL BLACK FUTURE MONTH?,* **N. K. Jemisen**
 
 - *The Einstein Intersection,* **Samuel Delaney**
