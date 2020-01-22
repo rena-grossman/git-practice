@@ -8,10 +8,10 @@ Rena D. Grossman
 
 ### Week 1
 
-- *Kindred,* **Octavia Butler**
+- [*Kindred,*](https://en.wikipedia.org/wiki/Kindred_(novel)) **Octavia Butler**
 
--*Coraline,* **Neil Gaiman**
+- [*Coraline,*](https://en.wikipedia.org/wiki/Coraline) **Neil Gaiman**
 
-- *HOW LONG 'TIL BLACK FUTURE MONTH?,* **N. K. Jemisen**
+- [*HOW LONG 'TIL BLACK FUTURE MONTH?](https://en.wikipedia.org/wiki/How_Long_%27til_Black_Future_Month%3F),* **N. K. Jemisen**
 
-- *The Einstein Intersection,* **Samuel Delaney**
+- [*The Einstein Intersection,*](https://en.wikipedia.org/wiki/The_Einstein_Intersection) **Samuel Delaney**
